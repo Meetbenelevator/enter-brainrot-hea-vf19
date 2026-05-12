@@ -1,4 +1,4 @@
-#  
+#  advanced Scripts for enter brainrot heads offers the most advanced enter brainrot heads Script, with auto-sell and unlimited stamina. Perfect for
 
 
 
